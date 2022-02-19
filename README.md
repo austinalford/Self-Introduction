@@ -6,11 +6,11 @@ I am originally from Cincinnati, Ohio. Specifically, I was raised in Anderson To
 
 ### Interests
 
-I like sports, playing my Xbox, and hanging with friends. 
+I like watching and playing sports, playing my Xbox, and hanging with friends. 
 
 ```markdown
 
-
+Favorite Food: SUSHI
 
 
 ```
