@@ -1,6 +1,6 @@
 ## Austin Alford
 
-Hi - I am a senior Games and Animation major at Ohio University. 
+Hi - I am a senior Games and Animation major at Ohio University. I am 22 years old.
 
 I am originally from Cincinnati, Ohio. Specifically, I was raised in Anderson Township and went to Anderson High School.
 
