@@ -14,7 +14,6 @@ I like watching and playing sports, playing my Xbox, and hanging with friends.
 
 Favorite Food: SUSHI
 
-
 ```
 
 
