@@ -4,6 +4,8 @@ Hi - I am a senior Games and Animation major at Ohio University. I am 22 years o
 
 I am originally from Cincinnati, Ohio. Specifically, I was raised in Anderson Township and went to Anderson High School.
 
+My LinkedIn: https://www.linkedin.com/in/austin-alford-5b32761a3/
+
 ### Interests
 
 I like watching and playing sports, playing my Xbox, and hanging with friends. 
